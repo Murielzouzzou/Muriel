@@ -1,4 +1,5 @@
-# Salut, Je suis Muriel Rita ![tenor](https://github.com/user-attachments/assets/4d7ab64c-6f7d-460b-afbc-beb5314ebe5b)
+# Salut, Je suis Muriel Rita ![tenor](https://github.com/user-attachments/assets/2cda09f6-76cd-466d-8335-ff506e57dec0)
+
 ---
 # A propos de moi💁‍♀️
 Passionnée par la santé (biologie, médecine, bien-être, bioinformatique, ...), je m’intéresse à la manière dont les données peuvent transformer et améliorer les soins de santé.  
@@ -13,7 +14,8 @@ Passionnée par la santé (biologie, médecine, bien-être, bioinformatique, ...
 - 🛟Ethique et confidentialité des données médicales
 Ces domaines permettent de combiner des compétences techniques en science des données avec une contribution significative au secteur de la santé.
 ---
-# Loisirs et sports ![tenor (1)](https://github.com/user-attachments/assets/6fe2240b-6b7c-45fb-89f6-36af623b90f6)
+# Loisirs et sports ![tenor (1)](https://github.com/user-attachments/assets/58ff765b-2c44-4b7d-b532-acfd21c23e60)
+
 
 - Series/ Films 🎬
 - Musique/ Chant🎶
